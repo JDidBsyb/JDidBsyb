@@ -5,11 +5,11 @@
 
 - 🔭 I’m currently working on PT QAFCO ***as a branch manager***
 
-- 🌱 I’m currently learning ***Data Science, python, Machine learning, excel, and tableau***
+- 🌱 I’m currently learning ***Data Science, Python, Machine learning, Excel, and Tableau***
 
 - 👯 I’m looking to collaborate on ***Data Science project***
 
-- 🤝 I’m looking for help with ***making more portopolio***
+- 🤝 I’m looking for help to ***making more portopolio***
 
 - 👨‍💻 All of my projects are available at [My Drive](https://drive.google.com/drive/folders/1AdR3U1hAN8hAucd-oWbfhzjvN7tNzClt?usp=sharing)
 
@@ -19,7 +19,7 @@
 
 - 📫 How to reach me ***basyaebj@gmail.com***
 
-- 📄 Know about my experiences [My CV](https://www.linkedin.com/in/jadidbasyaeb)
+- 📄 Know about my experiences [My LinkedIn](https://www.linkedin.com/in/jadidbasyaeb) or [My CV](https://drive.google.com/file/d/1YFI4-lCowFFgyYMi5JqVa_w_btI-002Q/view?usp=sharing)
 
 - ⚡ Fun fact ***Just Chat me to more information***
 
