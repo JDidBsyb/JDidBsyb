@@ -19,7 +19,7 @@
 
 - 📫 How to reach me ***basyaebj@gmail.com***
 
-- 📄 Know about my experiences [My CV]()
+- 📄 Know about my experiences [My CV](www.linkedin.com/in/Jdidbsyb)
 
 - ⚡ Fun fact ***Just Chat me to more information***
 
